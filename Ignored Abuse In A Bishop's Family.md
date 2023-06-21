@@ -1,6 +1,6 @@
 **From:** Eklan Singh <[eklansingh@gmail.com](mailto:eklansingh@gmail.com)>  
 **Date:** June 14, 2023 at 12:41:26 AM EDT  
-**To:** Address list removed
+**To:** Address list removed by JCB
 **Subject:** **Ignored Abuse In A Bishop's Family.**
 
 Hello all. First I wanna thank the few people who responded to my mother's letter to the Diocese of Rochester describing her pain. And who have reached out to us to show their support. You are reminders that there are decent individuals in the church. 
