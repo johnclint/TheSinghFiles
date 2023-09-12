@@ -1,0 +1,1 @@
+https://www.whec.com/top-news/former-bishop-of-episcopal-diocese-of-rochester-resigns-after-abuse-allegations/
